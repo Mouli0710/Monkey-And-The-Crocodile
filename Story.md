@@ -1,2 +1,3 @@
 Once upon a time there lived a monkey near almond tree near the banks of river and in the same forest there lived a crocodile and his wife.
 One day the crocodile came near the river and monkey offered him some almonds.The crocodile loved almonds So,he came the next day also,slowly the monkey and the crocodile became good friends.
+One day sent some almonds for the crocodile's wife and she ate all of them.Suddendly,she had a bad thought of eating the monkey.
